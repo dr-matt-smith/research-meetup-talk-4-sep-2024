@@ -20,3 +20,7 @@
 - form a simple committee for next 2 events
   - an informal team to send out emails / confirm speakers / confirm agenda etc. current plan is people help out with 2 events then pass the baton to the next people 
 this isn’t a lot of work, and we’ll share it around via volunteers
+
+
+https://drive.google.com/file/d/1s81d9GHScvHmNRu9JfayrE5Er54QHYOE/view?usp=sharing
+
