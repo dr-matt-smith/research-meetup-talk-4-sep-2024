@@ -1,6 +1,16 @@
 # research-meetup-talk-4-sep-2024
 
-Provisional plan for the hour (we’ll finish at around 1.50pm so everyone has time to be somewhere else at 2pm)
+
+## the goals of these sessions are along the lines of:
+
+- a regular in-person meeting for research students and supervisors
+- a “friendly” audience in which students can practice speaking about their research / try out conference presentation etc.
+- announcements about forthcoming school / faculty / university research events or opportunities
+- get advice from late-stage / completed PhD students
+- somewhere for other parts of the university to talk to us for research-related information
+  - for example we’ll ask Research Hub leaders to visit to tell us more about them
+
+## Provisional plan for the hour (we’ll finish at around 1.50pm so everyone has time to be somewhere else at 2pm)
 
 - Quick intro about the initial aims of the lunchtime sessions (we hope this is the first of many…)
   - And you can suggest events / goals for these sessions too … such events are BY school researchers FOR school researchers – so whatever we want them to be …
